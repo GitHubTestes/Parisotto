@@ -30,4 +30,4 @@
   [Twitter](https://twitter.com/edsonparisotto),
   [Facebook](https://facebook.com/edsonluizparisotto),
   [YouTube](https://www.youtube.com/parisotto),
-  [DeviantArt](https://parisotto.deviantart.com/).
+  [DeviantArt](https://parisotto.deviantart.com/)
